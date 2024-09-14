@@ -1,2 +1,2 @@
 Senior Software Engineering Analyst - Accenture
-Tech Enthusiast
+,Tech Enthusiast
